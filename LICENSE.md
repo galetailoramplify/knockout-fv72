@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base Scripts stealth is the best steal the brainrot base Script, featuring speed and custom skins. Safe and powerful for all your
 
 
 
